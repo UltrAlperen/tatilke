@@ -1,0 +1,2 @@
+# tatilke
+Çok kötüyüm
